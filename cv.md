@@ -8,3 +8,8 @@ CONTACTS
 natalija.dankina@gmail.com 
 ***
 
+## **LANGUAGES**
+
+I fluently speak four languages: Lithuanian, English, Russian, Italian.
+***
+

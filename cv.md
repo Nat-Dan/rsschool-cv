@@ -45,7 +45,7 @@ Issued August 2020 (No expiration date)
 
 - BACHELOR OF FINE ARTS, COSTUME DESIGNER
 University of Applied Science (Vilnius, Lithuania)
-2005 � 2009
+2005 – 2009
 ***
 
 ## **SKILLS**
@@ -69,4 +69,29 @@ University of Applied Science (Vilnius, Lithuania)
 
 - Strong organization skills.
 
+
+## **EDUCATION AND QUALIFICATION** 
+- WEB DESIGN UI/UX
+Code Academy 
+Duration of the course: 8 weeks, 320 hours 
+Issued December 2021 (No expiration date)
+
+- UI/UX WEB DESIGN 
+Vilnius Coding School 
+Duration of the course: 6 weeks, 51 hours 
+Issued June 2021 (No expiration date)
+
+- FASHION ILLUSTRATION: 
+SKETCHING | TECHNICAL DRAWING
+Online Non-Credit Course Authorized by National Research Tomsk State University (Coursera)
+Issued December 2020 (No expiration date)
+
+- GRAPHIC DESIGN 
+Online Non-Credit Course Authorized by University of Colorado Boulder (Coursera) 
+Issued August 2020 (No expiration date)
+
+- BACHELOR OF FINE ARTS, COSTUME DESIGNER
+University of Applied Science (Vilnius, Lithuania)
+2005 – 2009
+***
 

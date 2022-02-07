@@ -48,3 +48,25 @@ University of Applied Science (Vilnius, Lithuania)
 2005 – 2009
 ***
 
+## **SKILLS**
+- Competent with Adobe XD, Figma, Adobe Photoshop, Adobe Illustrator, Microsoft Office, including Word, Excel and Power Point
+
+- Flexible and willing to train working with software applications
+
+- Confident with drawing
+
+- Creative and critical thinking
+
+- Perfect communication skills
+
+- Able to work under pressure in a busy environment
+
+- Able to learn new information quickly
+
+- Problem solving
+
+- Able to work on own initiative or as part of a team
+
+- Strong organization skills.
+
+
